@@ -87,7 +87,9 @@ To analyse Sugar Cosmetics’ Instagram content performance and provide actionab
 **Jangam Bala Chandra Mohan Reddy**  
 B.Tech | Data Analyst Intern | Power BI Enthusiast  
 📧 [jangambalachandramoahnreddy@gmail.com]  
-[LinkedIn](www.linkedin.com/in/jangam-balachandramohanreddy)  
+(www.linkedin.com/in/jangam-balachandramohanreddy)  
+<img width="1295" height="721" alt="image" src="https://github.com/user-attachments/assets/c8cd82b8-c329-4d4d-aac5-cc286746c362" />
+
 
 ---
 
